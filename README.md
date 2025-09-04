@@ -36,6 +36,4 @@ I learn new things quickly and I don't like standing still – I’m always look
 ---
 
 ## Connect
-- Website: [your link here]  
-- LinkedIn: [your link here]  
-- Email: [your@email.com]  
+- Email: [tomox.design@gmail.com]    
